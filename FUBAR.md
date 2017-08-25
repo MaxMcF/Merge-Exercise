@@ -1,5 +1,9 @@
 #FUBAR
 
+My name is Alice.
+I like tea.
+This is my update. 
+
 flerg the blerg and foo the bar.
 changes are fun
 
@@ -72,4 +76,3 @@ Its dat boi, oh dayhum.
 ▀███████████████████████▀╨                
 ╙▀█████████████████▀╙                   
  ╙╙▀▀▓██▀▀▀▀▀                       
-
