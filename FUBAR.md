@@ -6,6 +6,8 @@ changes are fun
 Oh shit whaddup boi
 Its dat boi, oh dayhum.
 
+This is a meme from the future, you wont understand it until 42069 A.D.
+
 ,╓╖╗╗╗╣╣▄╦,                          
 ,╓╦╗╬╣╬▓▓▓▓▓▓▓▓▓▓█▓▓▌⌐                        
 ╣▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓█████▓▓µ                       
@@ -72,4 +74,3 @@ Its dat boi, oh dayhum.
 ▀███████████████████████▀╨                
 ╙▀█████████████████▀╙                   
  ╙╙▀▀▓██▀▀▀▀▀                       
-
