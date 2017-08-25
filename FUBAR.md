@@ -10,6 +10,8 @@ changes are fun
 Oh shit whaddup boi
 Its dat boi, oh dayhum.
 
+This is a meme from the future, you wont understand it until 42069 A.D.
+
 ,╓╖╗╗╗╣╣▄╦,                          
 ,╓╦╗╬╣╬▓▓▓▓▓▓▓▓▓▓█▓▓▌⌐                        
 ╣▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓▓█████▓▓µ                       
@@ -80,3 +82,4 @@ Its dat boi, oh dayhum.
 This is my own change on my own time with my own words
 if you judge me you will die.
 
+^^ who wrote this? 
