@@ -1,2 +1,2 @@
 #FUBAR
-Oh shit whaddup boi
+flerg the blerg and foo the bar.
