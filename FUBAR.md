@@ -1,5 +1,9 @@
 #FUBAR
 
+My name is Alice.
+I like tea.
+This is my update. 
+
 flerg the blerg and foo the bar.
 changes are fun
 
@@ -74,3 +78,8 @@ This is a meme from the future, you wont understand it until 42069 A.D.
 ▀███████████████████████▀╨                
 ╙▀█████████████████▀╙                   
  ╙╙▀▀▓██▀▀▀▀▀                       
+
+This is my own change on my own time with my own words
+if you judge me you will die.
+
+^^ who wrote this? 
